@@ -6,6 +6,6 @@
 | 10:15 | [SCA](https://meet.google.com/qwn-iaoh-nov) | [SCA](https://meet.google.com/aef-dfev-thg) | [SCA](https://meet.google.com/mxz-sqvx-him) | [SCA lab](https://meet.google.com/shr-ejpc-kbd) | [Project](https://meet.google.com) |
 | 11:20 | [EM](https://meet.google.com/mww-jbzp-fvz)  | [EM](https://meet.google.com/ekm-iziy-mqj) | [QAR](https://meet.google.com) | [AM](https://meet.google.com) | [Project](https://meet.google.com) |
 | 12:20 |  Break  | Break | Break | Break | Break |
-| 01:00 | [QAR](https://meet.google.com/zzw-gdon-rwx) | [AM](https://meet.google.com) | [EM](https://meet.google.com/vyi-kkzp-vww) | [EM lab](https://meet.google.com/bhv-oznc-sqw) | [AM](https://meet.google.com) |
+| 01:00 | [QAR](https://meet.google.com/zzw-gdon-rwx) | [AM](https://meet.google.com/xek-mfsa-exa) | [EM](https://meet.google.com/vyi-kkzp-vww) | [EM lab](https://meet.google.com/bhv-oznc-sqw) | [AM](https://meet.google.com) |
 | 02:05 |  []()   | [Soft skill](https://meet.google.com) | [Project](https://meet.google.com) | []() | [Project](https://meet.google.com) |
 | 03:10 | [AM](https://meet.google.com/ubb-igvs-xwm)  | [Soft skill](https://meet.google.com) | [Project](https://meet.google.com) | [AM lab](https://meet.google.com) | [Project](https://meet.google.com) |
